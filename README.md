@@ -1,5 +1,3 @@
-# Societe Generale
-Interview assessement
 
 
  Please find below my responses to your question.
